@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-EAMU990508HVZSDR04
+EAMU990508HVZSDR04
